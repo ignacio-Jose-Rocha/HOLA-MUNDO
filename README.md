@@ -6,5 +6,5 @@ i love 🐱 , 🐶, 🐦, 🍕
 
 i love 😴, 🍓
 
-nueva actividad
+nueva actividad.
 
